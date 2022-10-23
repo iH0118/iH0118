@@ -1,1 +1,1 @@
-✨ making the world more chaotic one unfinished project at a time ✨
+✨ making the world a more chaotic place one unfinished project at a time ✨
